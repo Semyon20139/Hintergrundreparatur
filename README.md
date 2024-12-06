@@ -1,2 +1,0 @@
-# Hintergrundreparatur
-Ave Lurgenz!
